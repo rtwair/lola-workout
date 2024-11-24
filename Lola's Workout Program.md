@@ -119,7 +119,7 @@
     
     - 3x5 (moderate to heavy weight)  
         
-3. **Pull-Ups (or Lat Pulldowns)**  
+3. **Lat Pulldowns**  
     
     - 4x8–12  
         
